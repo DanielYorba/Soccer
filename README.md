@@ -9,8 +9,22 @@ Soccer has many rules and regulations but they can be simplified into a few majo
 
 This is referring to the official [FIFA](https://img.fifa.com/image/upload/khhloe2xoigyna8juxw3.pdf) rules on soccer. 
 
-### Players who Influenced the Game
+### Players who have Influenced the Game
 ![Ronaldo and Messi](https://en.as.com/futbol/imagenes/2020/08/29/internacional/1598709280_935915_1598709459_noticia_normal_recorte1.jpg)
+
+-Cristiano Ronaldo (still playing as of 2020)
+
+-Lionel Messi (still playing as of 2020)
+
+-Diego Maradona
+
+-Edson Arantes do Nascimento (Pelé)
+
+-Zinedine Zidane
+
+-Ronaldo de Assis Moreira (Ronaldinho)
+
+-Johan Cruyff
 
 
 
