@@ -5,11 +5,11 @@ You can use the [editor on GitHub](https://github.com/DanielYorba/Soccer-The-Bea
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### The Rules of Soccer
-This is referrung to the official [FIFA](https://img.fifa.com/image/upload/khhloe2xoigyna8juxw3.pdf) rules on soccer. 
+This is referring to the official [FIFA](https://img.fifa.com/image/upload/khhloe2xoigyna8juxw3.pdf) rules on soccer. 
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ### Players who Influenced the Game
-
+![Ronaldo and Messi](Ronaldo and Messi.jpg)
 
 
