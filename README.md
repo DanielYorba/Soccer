@@ -10,6 +10,6 @@ This is referring to the official [FIFA](https://img.fifa.com/image/upload/khhlo
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ### Players who Influenced the Game
-![Ronaldo and Messi](Ronaldo and Messi.jpg)
+![Ronaldo and Messi](Ronaldo and Messi.jpg "Ronaldo and Messi")
 
 
