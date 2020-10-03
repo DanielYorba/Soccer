@@ -9,22 +9,14 @@ Soccer has many rules and regulations but they can be simplified into a few majo
 
 This is referring to the official [FIFA](https://img.fifa.com/image/upload/khhloe2xoigyna8juxw3.pdf) rules on soccer. 
 
-### Players who have Influenced the Game
+### Ronaldo and Messi: The most influential players this generation
 ![Ronaldo and Messi](https://en.as.com/futbol/imagenes/2020/08/29/internacional/1598709280_935915_1598709459_noticia_normal_recorte1.jpg)
 
 -Cristiano Ronaldo (still playing as of 2020)
+Cristiano Ronaldo is a Portuguese soccer player who has been playing on the professional level since 2002. He started playing for Sporting CP in Portugal in 2002.That year he won the Portuguese Super Cup. He quickly got the attention from Manchester United from England who bought him in 2003. At Manchester United he grew as a player and became a vital part of the team. He won the English Super Cup and the English FA Cup in 2004. He won the English League Cup in 2006. He won the English Premier League and Community Shield in 2007. He won the English Premier League, Champions League, and club world cup in 2008. He won the English Premier League and the English League Cup in 2009. In the summer of 2009, Cristiano was bought by Real Madrid in Spain. At Real Madrid, Cristiano became a legend by scoring again and again in important moments. He became the highest goalscorer in Real Madrid's history with 450 goals in 438 competitive games. In 2011 he won the Copa del Rey. In 2012 he won La liga and the Spanish Super cup. In 2013 he won the Spanish Super Cup. In 2014 he won the Copa del Rey, Champions League, Uefa Super Cup, and Club World Cup. In 2016 he won the Champions League, Uefa Super Cup, and Club World Cup. In 2017 he won La Liga, Champions League, Supercopa de España, Uefa Super Cup, and Club World Cup. In 2018 he won the Champions League. In the summer of 2018, Juventus bought him. In 2019 he won the Serie A and the Italian Super cup. In 2020 he won the Serie A again. As you can Ronaldo is a very decorated player on the club level but he is also a legend in international soccer. He lead Portugal to winning their first ever international trophy. He lead Portugal to win the Euro Cup in 2016 and the Uefa Nations League in 2019. As of October 2, 2020 Ronaldo is Portugal's all-time highest scorer and the second all-time scorer in all international soccer history. He currently has 101 international goals. The all-time record is 109 goals. Ronaldo has won the best FIFA men's player 5 times (2008, 2013, 2014, 2016, 2017), the Ballon D'Or (Best player in the world) 5 times (2008, 2013, 2014, 2016, 2017), and the Uefa Best Player in Europe 3 times (2014, 2016, 2017). He has won the Golden Boot (top scorer in Europe) 4 times (2008, 2013, 2014, 2016, 2017). He is the current all-time leading scorer in the Champions League with 130 goals. Ronaldo has countless more records and incredible stats that make him legendary. He is a top class winger and striker. His mentality, determination, skill, and goal-scoring ability will inspire generations to come.
 
 -Lionel Messi (still playing as of 2020)
 
--Diego Maradona
-
--Edson Arantes do Nascimento (Pelé)
-
--Zinedine Zidane
-
--Ronaldo de Assis Moreira (Ronaldinho)
-
--Johan Cruyff
 
 
 
